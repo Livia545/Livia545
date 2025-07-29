@@ -47,7 +47,7 @@ Minha primeira experiência empreendedora foi aos 13 anos, quando criei uma loja
 
 - ✉️ Email: **[livialyandra9@gmail.com]**
 - 📱 Instagram: [@livialyandra]
-- 💼 LinkedIn: [[linkedin.com/in/seuusuarioaqui](https://linkedin.com/in/seuusuarioaqui](https://www.linkedin.com/in/livia-lima-63b120337/)) *(opcional)*
+  - 💼 LinkedIn: [https://www.linkedin.com/in/livia-lima-63b120337]
 
 ---
 

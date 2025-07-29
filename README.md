@@ -14,6 +14,9 @@ Atualmente, atuo como **lash designer autônoma**, gerenciando meu próprio espa
 
 Minha primeira experiência empreendedora foi aos 13 anos, quando criei uma loja de semijoias no Instagram, sendo responsável por vendas, divulgação e organização dos pedidos.
 
+
+<img width="1400" height="350" alt="image" src="https://github.com/user-attachments/assets/51665fc3-cb35-4151-9856-4984f71be24c" />
+
 ---
 
 ## 🧠 Conhecimentos
